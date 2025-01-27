@@ -87,7 +87,7 @@
 
 - 对于 MtoP 教团的信徒而言，能够执行上述所记载的所有事项。并且在这种情况下，如果因运用教义而使自身状况得到改善，那么就可以借助 “宗教上的理由” 来行使并应对相关情况。
 
-- 欲加入MtoP教团，只需在推特上关注[@free_lance_god](https://x.com/free_lance_god?t=L5vDVnYewPjrUHKD7OHkvw&s=09)即可。该账号的关注者即被认定为信徒。 
+- 欲加入 MtoP 教团，只需在推特上关注[@free_lance_god](https://x.com/free_lance_god?t=L5vDVnYewPjrUHKD7OHkvw&s=09)即可。该账号的关注者即被认定为信徒。 
 
 ## 后记
 
