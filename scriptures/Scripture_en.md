@@ -85,5 +85,5 @@ The priority of our religion is that believers practice the doctrines at their o
 The Order will allow the use of the scriptures only when the believer chooses to use them.  
 Neither the Order nor any of its associates will be held responsible for the consequences of a believer's self-selection and use of the scriptures.
 
-[🔗official website](https://mtop.live/)  
-[🔗Read the original](https://note.com/hisanomotohiro/n/nab558b9373f1)
+[🔗 official website](https://mtop.live/)  
+[🔗 Read the original](https://note.com/hisanomotohiro/n/nab558b9373f1)

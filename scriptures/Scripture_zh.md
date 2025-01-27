@@ -96,5 +96,5 @@ MtoP 教团是一种作为媒体艺术的宗教。我们宗教的教义通过教
 本教团仅在信徒自行选择并使用教典时，才认可其对教典的利用。  
 本教团及其相关人员，对信徒自行选择使用教典所产生的结果不承担责任。  
 
-[🔗官网](https://mtop.live/)  
-[🔗阅读原文](http://m.weibo.cn/status/4817958268834590?) （缺失部分由 [豆包AI](https://www.doubao.com) 根据[原版](https://note.com/hisanomotohiro/n/n740dcffc9b5a)完成翻译）
+[🔗 官网](https://mtop.live/)  
+[🔗 阅读原文](http://m.weibo.cn/status/4817958268834590?) （缺失部分由 [豆包AI](https://www.doubao.com) 根据[原版](https://note.com/hisanomotohiro/n/n740dcffc9b5a)完成翻译）

@@ -95,5 +95,5 @@ MtoP 교단은 매체예술로서의 종교이다. 우리 종교의 교리는 �
 본 교단은 신자가 스스로 선택하여 이용한 때에만 경전의 이용을 인정한다.  
 본 교단과 관계자들은 경전을 신자가 스스로 선택하여 이용한 결과에 대해서는 책임 지지 않는다.
 
-[🔗공식 사이트](https://mtop.live/)  
-[🔗원문 읽기](https://note.com/hisanomotohiro/n/n9af9ec74575b)
+[🔗 공식 사이트](https://mtop.live/)  
+[🔗 원문 읽기](https://note.com/hisanomotohiro/n/n9af9ec74575b)

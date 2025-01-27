@@ -98,5 +98,5 @@ MtoP教団は、メディアアートとしての宗教である。私たちの�
 当教団は、信者が自ら選び利用したときに限り、教典の利用を認める。  
 当教団及びその関係者は、教典を信者が自ら選び利用した結果に責任を負わない。
 
-[🔗公式サイト](https://mtop.live/)  
-[🔗原文を読む](https://note.com/hisanomotohiro/n/n740dcffc9b5a)
+[🔗 公式サイト](https://mtop.live/)  
+[🔗 原文を読む](https://note.com/hisanomotohiro/n/n740dcffc9b5a)
