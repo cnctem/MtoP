@@ -83,8 +83,7 @@ Our scriptures and doctrines do not contain definitions of God, rituals, or proh
 The MtoP Order is a religion as media art. The tenets of our religion are promulgated in our scriptures and updated from time to time.  
 The priority of our religion is that believers practice the doctrines at their own risk, and we do not allow the use of the scriptures if they cannot take responsibility for themselves.  
 The Order will allow the use of the scriptures only when the believer chooses to use them.  
-Neither the Order nor any of its associates will be held responsible for the consequences of a believer's self-selection and use of the scriptures.  
-
+Neither the Order nor any of its associates will be held responsible for the consequences of a believer's self-selection and use of the scriptures.
 
 [🔗official website](https://mtop.live/)  
 [🔗Read the original](https://note.com/hisanomotohiro/n/nab558b9373f1)
