@@ -19,7 +19,7 @@ MtoP 神教，全称叫做“Motohiro to People”，翻译过来大概叫“元
 **因为日本法律规定，禁止基于意识形态或者信条的歧视，人们必须尊重其他人的宗教信仰**  
 想要入教，也不需要繁琐的仪式，只需要关注 [ MtoP 神教的官方推特主页](https://x.com/free_lance_god?t=L5vDVnYewPjrUHKD7OHkvw&s=09)就行。  
 
-- [🔗阅读原文](https://mp.weixin.qq.com/s/R_T4LimBsW3ewtotoTN3wg)
+[🔗 阅读原文](https://mp.weixin.qq.com/s/R_T4LimBsW3ewtotoTN3wg)
 
 
 ## “宗教上的理由” 堪称理由界最强的理由
