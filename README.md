@@ -4,7 +4,7 @@
 
 * [官网](https://mtop.live/) 
 
-* [教典](?tab=readme-ov-file#教典的践行是自由的)
+* [教典](#教典的践行是自由的)
 
 ![](/Card.png)
 
